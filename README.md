@@ -1,0 +1,2 @@
+# hacking
+https://getunlimitedfreefirediamonds.com
